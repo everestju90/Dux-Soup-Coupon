@@ -1,3 +1,5 @@
+# Dux-Soup Coupon (June 2025) Save 75% On LinkedIn Automation
+
 So… you’ve been crawling through the web looking for a [Dux-Soup coupon](https://www.dux-soup.com/pricing?fpr=shadow), huh?
 
 Well, good news: your LinkedIn outreach strategy is about to get a whole lot cheaper and smarter.
